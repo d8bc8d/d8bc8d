@@ -5,7 +5,7 @@ $\color{#E0E1DD}{\text{Hewwo, it`s me Kotofy!!}}$
 
 $\color{#E0E1DD}{\text{My pronouns are she/her <3}}$
 
-$\color{#E0E1DD}{\text{Feel free to int unless i have dni}}$
+$\color{#bebba5}{\text{Feel free to int unless i have dni}}$
 
 $\color{#778DA9}{\text{I have ben lacking moots so you are always welcome to be one!}}$ $\color{#778DA9}{\text{/ I`m available for Spanish, Portuguese and Spanish moots!!}}$
 
