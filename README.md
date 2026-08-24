@@ -1,16 +1,14 @@
-## Hi there 👋
+$\color{#E0E1DD}{\text{Hewwo, it`s me Kotofy!!}}$
 
-<!--
-**d8bc8d/d8bc8d** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="735" height="647" alt="image" src="https://github.com/user-attachments/assets/921634d0-5303-4bef-b77e-0938072a5797" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+$\color{#E0E1DD}{\text{My pronouns are she/her <3}}$
+
+$\color{#E0E1DD}{\text{Feel free to int unless i have dni}}$
+
+$\color{#778DA9}{\text{I have ben lacking moots so you are always welcome to be one!}}$ $\color{#778DA9}{\text{/ I`m available for Spanish, Portuguese and Spanish moots!!}}$
+
+$\color{#415A77}{\text{You can take inspo but please don`t copy..}}$
+
+$\color{#1B263B}{\text{Also, mb that my humor i kinda bad}}$
