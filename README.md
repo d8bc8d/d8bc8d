@@ -1,4 +1,4 @@
-<p align="center"><a href="https://hits.sh/github.com/d8bc8d/hits/"><img alt="Hits" src="https://hits.sh/github.com/d8bc8d/hits.svg?label=embers&extraCount=2008&color=778DA9&labelColor=E0E1DD"/></a>
+<p align="center"><a href="https://hits.sh/github.com/d8bc8d/hits/"><img alt="Hits" src="https://hits.sh/github.com/d8bc8d/hits.svg?label=embers&extraCount=30&color=778DA9&labelColor=E0E1DD"/></a>
   
 
 $\color{#E0E1DD}{\text{Hewwo, it`s me Kotofy!!}}$
