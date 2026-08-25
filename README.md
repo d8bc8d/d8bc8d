@@ -1,4 +1,8 @@
+<p align="center"><a href="https://hits.sh/github.com/d8bc8d/hits/"><img alt="Hits" src="https://hits.sh/github.com/d8bc8d/hits.svg?label=embers&extraCount=2008&color=778DA9&labelColor=E0E1DD"/></a>
+  
+
 $\color{#E0E1DD}{\text{Hewwo, it`s me Kotofy!!}}$
+
 
 <img width="435" height="347" alt="image" src="https://github.com/user-attachments/assets/921634d0-5303-4bef-b77e-0938072a5797" />
 
