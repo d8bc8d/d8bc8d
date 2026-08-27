@@ -11,7 +11,7 @@ $\color{#E0E1DD}{\text{My pronouns are she/her <3}}$
 
 $\color{#bebba5}{\text{Feel free to int unless i have dni}}$
 
-$\color{#778DA9}{\text{I have ben lacking moots so you are always welcome to be one!}}$ $\color{#778DA9}{\text{/ I`m available for Spanish, Portuguese and Spanish moots!!}}$
+$\color{#778DA9}{\text{I have been lacking moots so you are always welcome to be one!}}$ $\color{#778DA9}{\text{/ I`m available for Spanish, Portuguese and Spanish moots!!}}$
 
 $\color{#415A77}{\text{You can take inspo but please don`t copy..}}$
 
