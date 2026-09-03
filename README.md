@@ -4,12 +4,12 @@
 $\color{#E0E1DD}{\text{Hewwo, it`s me Kotofy!!}}$
 
 
-<img width="435" height="347" alt="image" src="https://github.com/user-attachments/assets/921634d0-5303-4bef-b77e-0938072a5797" />
+<img width="535" height="447" alt="image" src="https://github.com/user-attachments/assets/921634d0-5303-4bef-b77e-0938072a5797" />
 
 
 $\color{#E0E1DD}{\text{My pronouns are she/her <3}}$
 
-$\color{#bebba5}{\text{Feel free to int unless i have dni}}$
+$\color{#bebba5}{\text{Feel free to int unless i have dni}}$ $\color{#bebba5}{\text{/ My names are Kotofy and Embers, you can call me any of them}}$
 
 $\color{#778DA9}{\text{I have been lacking moots so you are always welcome to be one!}}$ $\color{#778DA9}{\text{/ I`m available for Spanish, Portuguese and Spanish moots!!}}$
 
